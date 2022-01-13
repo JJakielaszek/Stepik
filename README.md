@@ -1,1 +1,1 @@
-# Stepik
+Jan Jakielaszek
